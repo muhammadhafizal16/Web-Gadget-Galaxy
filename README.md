@@ -1,1 +1,1 @@
-# Pijal.com
+# Website Toko Gadget Galaxy
